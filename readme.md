@@ -1,3 +1,3 @@
-Just trying to do what I can, with the knowledge I have earned, to make the world a little better each day :sunglasses:
+Just trying to do whot I can, with the knollėdje I have earn'd, to make the wurld a little better eech day :sunglasses:
 
-Advǒket of [English spelling rifform](https://github.com/JaiganeshKumaran/JaiganeshKumaran/tree/main/English%20spelling%20rifform) and [Tamil langwej rifform](https://github.com/JaiganeshKumaran/JaiganeshKumaran/tree/main/தமிழ்%20மொழி%20சீர்திருத்தம்)
+Advȯket of [English spelling rėform](https://github.com/JaiganeshKumaran/JaiganeshKumaran/tree/main/English%20spelling%20rifform) and [Tamil langwej rėform](https://github.com/JaiganeshKumaran/JaiganeshKumaran/tree/main/தமிழ்%20மொழி%20சீர்திருத்தம்)
