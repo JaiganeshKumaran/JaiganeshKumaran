@@ -1,4 +1,4 @@
-Just trying to do whot I can, with the knollej I have ern'd, to make the wurld a littel better eech day :sunglasses:
+Just trying to do whot I can, with the knollej I have ern'd, to make the wurld a little better eech day :sunglasses:
 
 Advocat of [English spelling re'form](https://github.com/JUV-Studios/Nue-English) and [Tamil langwej re'form](https://github.com/JaiganeshKumaran/Naveena-Tamil)
 
