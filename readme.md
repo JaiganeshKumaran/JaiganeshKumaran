@@ -1,3 +1,3 @@
-Just trying tu du whot I can, with the nólaje I hav ernd, tu make the wurld a littel better ece de 😎
+Just trying tu du whot I kan, with the knólaje I hav ern'd, tu make the wurld a litl better ece de 😎
 
-Advocate of [English spelling reform](https://github.com/jaigak/Clere-English) and [Thamirl (Tamil) lángwaje reform](https://github.com/jaigak/NavIna-Thamirl)
+Advokate of [English spelling reform](https://github.com/jaigak/Klere-English) and [Thamirl (Tamil) lángwaje reform](https://github.com/jaigak/NavIna-Thamirl)
